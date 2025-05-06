@@ -1,4 +1,0 @@
-how
-delete
-you
-?
